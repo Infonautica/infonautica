@@ -9,4 +9,5 @@
 
 🔗 Links:
 - [LinkedIn](https://www.linkedin.com/in/infonautica/)
+- [Medium](https://medium.com/@infonautica)
 - [Pexels](https://www.pexels.com/@infonautica/) (my free to use photos)
